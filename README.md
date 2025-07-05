@@ -11,4 +11,4 @@ Need to contact me? My Discord username is "remfexxel", and you can direct messa
 ## Other Accounts
 [Steam Profile](https://steamcommunity.com/id/RemFexxel/) | [Spotify Profile](https://open.spotify.com/user/31vut5665a3uwiz2745g4h327a4y?si=d1d669ebf7554b65)
 
-[Interested in checking out songs in this Spotify playlist?](https://open.spotify.com/playlist/51lTUtrhScS4Zq6o0aWdNH?si=4606ec6fa5a546fd)
+[Come look at my Spotify playlist that I add new songs to sometimes!](https://open.spotify.com/playlist/51lTUtrhScS4Zq6o0aWdNH?si=4606ec6fa5a546fd)
