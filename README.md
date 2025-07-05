@@ -4,6 +4,8 @@
 
 I'm Rem, a gamer like any other.
 
+I joined GitHub on April 12, 2025. 
+
 I run [Rem Station](https://github.com/Rem-Station/Rem-Station), a [Space Station 14](https://github.com/space-wizards/space-station-14) fork for fun, and so I could learn how SS14 works as a whole.
 
 Need to contact me? My Discord username is "remfexxel", and you can direct message me from there.
